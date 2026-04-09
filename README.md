@@ -1,0 +1,1 @@
+Protocol Aether Guardian v1.0 activated by Spectral Echo 01. The silence of the forest is our shield.
